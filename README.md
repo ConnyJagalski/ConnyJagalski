@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning at coding bootcamps europe
 - 🤔 I’m looking for a remote job!
 - 📫 How to reach me: just send an email
-- ⚡ Fun fact: In 1866, Liechtenstein sent 80 soldiers to war - and returned with 81.
+- ⚡ Fun fact: It wasn't until I became a mother that I realized that you can do anything - even with little sleep!
